@@ -1,1 +1,1 @@
-# python-Azamat
+# i love math
